@@ -1,0 +1,2 @@
+# ZNIZKA-W-SEOHOST
+SEOHOST.pl 40% rabatu z kodem HOSTING40
